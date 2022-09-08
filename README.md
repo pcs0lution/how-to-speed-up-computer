@@ -1,6 +1,6 @@
 # how to speed up computer
 
-[![how to speed up computer](get-detail.png)](http://hp123-setup.s3-website-us-west-1.amazonaws.com)
+[![how to speed up computer](get-detail.png)](https://icncomputer.com/how-to-speed-up-computer/)
 
 Is your computer slow? Are you searching or googling for **[how to speed up computer](https://github.com/pcs0lution/how-to-speed-up-computer/)** Then you are in the right place. So scroll down and read, this article might fulfill your need. You might consider adding RAM or buying a faster SSD, but it costs money. No, there is another option that saves time, money and stress. For this you should first try to make Windows faster. In this way we can increase the speed of your PC without spending a single penny or changing any hardware.
 
